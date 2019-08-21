@@ -1,4 +1,4 @@
-# arsip-penting
+# arsip-penting (khusus untuk mentoring)
 semua kebutuhan surat menyurat terdapat di sini
 Mohon diingat setiap kegiatan kepanitiaan melibatkan 
 - surat menyurat
