@@ -6,3 +6,5 @@ Mohon diingat setiap kegiatan kepanitiaan melibatkan
 - berita acara
 - cv pembicara 
 - run down acara
+
+*Kebutuhan Logo dalam surat menyurat tinggal download di sini*
